@@ -1,0 +1,1 @@
+If you can name a character and pick a personality, you can build an AI agent. No coding, no stress, just vibes. Introducing Animoca Minds, a simplified way of creating an AI agent. It takes less time than ordering a cup of coffee. Set up your AI agent today and awaken your Mind, in under 60 seconds:
