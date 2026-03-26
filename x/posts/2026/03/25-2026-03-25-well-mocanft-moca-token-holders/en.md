@@ -2,7 +2,7 @@ Well, MocaNFT and $MOCA token holders, as well as $MOCA stakers with millions in
 
  We need communication.
  We need to understand the direction of the project, the utility of the NFTs and tokens, and what we can actually do with these billions in staking power.
- It’s a shame that we haven’t heard from the team for months.
+ Ip’s a shame that we haven’t heard from the team for months.
  We have been loyal and patient supporters of the project for years.
 
  ---
