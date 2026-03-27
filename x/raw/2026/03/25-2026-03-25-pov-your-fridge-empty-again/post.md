@@ -1,0 +1,1 @@
+POV: your fridge is empty again Not just because you forgot Because nobody was handling it Your AI agent could've: planned your meals; built your list; reminded your yesterday; All you need to do is delegate your tasks!
