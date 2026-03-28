@@ -1,0 +1,1 @@
+Our Minds clicked now. 🤝\n\n---\nid: "2037371838922424698"\nsignal_number: 34\nplatform: "x"\ncreated_at: "2026-03-27"\nauthor: "Animoca Minds"\nhandle: "@AnimocaMinds"\ncontent_type: "ugc"\nslug: "2026-03-27-our-minds-clicked-now"\nlang: "en"\ncanonical_url: "https://x.com/AnimocaMinds/status/2037371838922424698"\n---\n
